@@ -19,4 +19,3 @@ Não congelar o produto. Após aberto consumir imediatamente.
 Sem adição de conservantes
 Pratos aprovados por chefe e nutricionistas
 Feitos com ingredientes frescos e conhecidos dos consumidores
-
